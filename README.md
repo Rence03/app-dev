@@ -8,7 +8,7 @@ It follows the journey of a short but passionate player who dreams of becoming t
 
 ## ⭐ Why I Like It
 - 🔥 Intense and exciting matches  
-- 🤝 Strong themes of teamwork and friendship  
+- 🤝 Strong themes of teamwork and friendship   
 - 💯 Character development is top-tier  
 - 🎯 Motivating and inspiring story  
 
